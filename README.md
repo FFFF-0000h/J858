@@ -4,3 +4,8 @@ A faithful work inspired by John 8:58 - "Jesus said unto them, Verily, verily, I
 Shortly after he (Jesus) said this, the Jews sought to stone him.
 
 Jesus claimed (claims, will claim) to be God.
+
+To the chief programmer and most wise one.
+I attempt to replace all texts with the word "Jesus" with "God". 
+
+Tolle, Lege, Tolle, Lege.
